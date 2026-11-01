@@ -222,4 +222,4 @@ Order of War is provided as a full free version, with all features and updates i
 Take command of history today and download **Order of War** for an unforgettable gaming experience!
 
 ---
-**Last updated:** 2026-11-01 00:54:35 UTC
+**Last updated:** 2026-11-01 07:18:33 UTC
